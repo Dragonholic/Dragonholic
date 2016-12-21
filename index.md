@@ -3,4 +3,4 @@
 
 welcome to [animal's forest](https://namu.wiki/w/%EB%8F%99%EB%AC%BC%EC%9D%98%20%EC%88%B2%20%EC%8B%9C%EB%A6%AC%EC%A6%88)
 
-- [ddd]
+- you must pay a [배춧잎](https://namu.wiki/w/%ED%98%84%EC%A7%88)
